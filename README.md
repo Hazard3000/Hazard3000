@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Hazard3000 
+- 👀 I’m interested in game cracks and game cheats.
+- 🌱 I’m currently learning python.
